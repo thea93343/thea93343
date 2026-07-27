@@ -18,5 +18,5 @@
 ### Socials:
 - Main site: [dullkate.pages.gay](https://dullkate.pages.gay)
 - [YouTube](https://youtube.com/@dullkate)
-- [Music (never post ever)](https://bandlab.com/thea93343)
+- [Music](https://on.soundcloud.com/9kYMXCW9x2fs1bRNaU)
 - Discord: thea.wren
