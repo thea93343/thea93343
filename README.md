@@ -11,7 +11,7 @@
 ### About actual me
 - She/her
 - Outside of this I occasionally try and fail to make good music
-- 🎶 tab1a, oukoo, Quadeca, Polyphia
+- 🎶 di4umi, oukoo, Quadeca, Polyphia
 - 🎼 Percussionist
 - Do not expect me to be very active on here unless I have a fun current project
 
